@@ -1,4 +1,4 @@
-[![MasterHead]https://preview.redd.it/thj41ymmh0351.gif?format=mp4&v=enabled&s=98027108ee94bf721c9a447b3b89a5ab632f76b6(https://sweata@1403.io)
+[![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsM...)](https://rishavchanda.io)
 <h1 align="center">Hi 👋, I'm Sweata Chakraborty</h1>
 <h3 align="center">A passionate web developer from India</h3>
 <img align="right" alt="coding" widhth="400" src="https://lexica.art/prompt/f58db949-2d7e-44c6-a0a8-aeaae80fe00b">
